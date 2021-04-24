@@ -1,4 +1,4 @@
-# N-SVAMT
+# N-SVAMT is our name!
 
 Our team is from around the world and we think proteins are cool 🙌
 
